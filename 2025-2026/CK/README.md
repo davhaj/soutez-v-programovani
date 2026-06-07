@@ -1,1 +1,1 @@
-
+Successful applicant
